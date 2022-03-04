@@ -1,1 +1,0 @@
-# aeminkaplan.github.io
